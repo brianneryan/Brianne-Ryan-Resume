@@ -52,7 +52,7 @@ Graphic Design - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
 
 Fine Art - New York, NY, Los Angeles, CA, Seattle, WA 2011-Present
 * Created commissioned original works of fine art through traditional and digital media. 
-* Examples of my work can be seen on my [website.](www.brianneryan.com) Or! For a quicker summary of my fine art process, see this [self-portrait](http://nebula.wsimg.com/7e1627f6d358e92847843087b5053abd?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1).
+* Examples of my work can be seen on my at www.brianneryan.com. Or! For a quicker summary of my fine art process, see this [self-portrait](http://nebula.wsimg.com/7e1627f6d358e92847843087b5053abd?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1).
 
 
 ### Volunteer Activities:
