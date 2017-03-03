@@ -32,9 +32,16 @@ Book Illustration - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
 * [Children's Book Example](https://www.amazon.com/Hudsons-Tales-Adventures-Brother-Hudson/dp/0692204040). 
 * [Fiction Example](https://www.amazon.com/dp/B018GEKCE0/ref=rdr_kindle_ext_tmb). 
 
-Medical Illustration - New York, NY 2012-2013  
+Medical and Scientific Illustration - New York, NY 2012-2013  
 * Illustrated and coauthored Neurological journal articles for Columbia University Medical Center
 * Designed graphics and logos for various departments of New York Presbyterian Hospital/Columbia University Medical Center
 
 Graphic Design - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
 * Created graphics for promotional materials, t-shirts and apparel, packaging, and logos for dozens of large and small companies, individuals, and organizations including SanMar, Columbia University, Henry Paulson, and Seattle Premier Events. 
+
+#### Volunteer Activities
+
+Art Donations
+* Donated paintings and prints of paintings centering in theme around Seattle Sports to auctions for various non-profit foundations. For example, I donated [this](http://nebula.wsimg.com/507a0f66abb9084a50d3ca5cd27ce192?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1) to the Friends of FSH Research Annual Auction. 
+
+
