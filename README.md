@@ -32,14 +32,14 @@ Scientific Illustration Cerification, 2007
 ### Professional Experience: 
 
 ##### Digital Artist at London CREA and Affiliated Companies. 
-Seattle, WA 2015-Present
+2015-Present
 
 * Responsible for a wide range of creative tasks including photography, development of logos and illustrations, and generation of promotional materials. 
 * Currently working in this full-time role for a group of companies that span multiple industries, while responsible for all manner of creative projects. 
 
 ##### Freelance Illustration
 
-Illustration - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
+Illustration - 2010-Present
 * Illustrated a wide array of genres of books, from childrens books to fantasy novels to non-fiction. 
 * Illustrated and coauthored Neurological journal articles for Columbia University Medical Center
 * Designed graphics and logos for various departments of New York Presbyterian Hospital/Columbia University Medical Center.
@@ -47,12 +47,22 @@ Illustration - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
 [_Hudson's Tales_](https://www.amazon.com/Hudsons-Tales-Adventures-Brother-Hudson/dp/0692204040), [_The Nuts I Know and the Party They Throw_](https://www.amazon.com/Nuts-Know-Party-They-Throw-ebook/dp/B01I66LB7A), and  
 [_Risen Gods_](https://www.amazon.com/dp/B018GEKCE0/ref=rdr_kindle_ext_tmb). 
 
-Graphic Design - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
+Graphic Design - 2010-Present
 * Created graphics for promotional materials, t-shirts and apparel, packaging, and logos for dozens of large and small companies, individuals, and organizations including SanMar, Columbia University, Henry Paulson, and Seattle Premier Events. Some examples include [this concept for a character](http://nebula.wsimg.com/0cddde35e84d66b61bef7fd39f66d88e?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1) for a Stuffed Castle Studios game, and the logo projected in [this image](http://nebula.wsimg.com/9939a41b375c4381be609f1662373884?AccessKeyId=37FD32A831813860134C&disposition=0&alloworigin=1) from a SanMar event.  
 
-Fine Art - New York, NY, Los Angeles, CA, Seattle, WA 2011-Present
+Fine Art - 2011-Present
 * Created commissioned original works of fine art through traditional and digital media. 
-* Examples of my work can be seen on my at www.brianneryan.com. Or! For a quicker summary of my fine art process, see this [self-portrait](http://nebula.wsimg.com/7e1627f6d358e92847843087b5053abd?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1).
+* Examples of my work can be seen on my at www.brianneryan.com. 
+
+##### Academic and Creative Tutoring
+2011-2014
+
+* Taught art, math, reading, writing, and exam preparedness to school age and pre-k children. 
+
+##### Office Assistant, Hitex Corporation
+2008-2011
+
+* Responsibilities included product display design and assisting with office administrative tasks. 
 
 
 ### Volunteer Activities:
