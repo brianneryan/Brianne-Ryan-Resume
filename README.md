@@ -62,6 +62,6 @@ Delta Society, Volunteer and Youth Program Founder, 2002-2008
 
 ### Interests:
 
-Seattle Sports, Art, Cooking and Baking, Jewish Studies, LGBTQ History, and national politics. 
+Seattle Sports, music, national politics, evolutionary science, Jewish studies, and LGBTQ history. I spend a lot of time reading and thinking about these topics--[here](http://nebula.wsimg.com/3ba7e512c2a09e7c46bb3063c20025c6?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1) is an illustration, which I painted!  
 
 
