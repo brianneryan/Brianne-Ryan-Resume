@@ -45,7 +45,7 @@ Book Illustration - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
 [_Risen Gods_](https://www.amazon.com/dp/B018GEKCE0/ref=rdr_kindle_ext_tmb). 
 
 Graphic Design - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
-* Created graphics for promotional materials, t-shirts and apparel, packaging, and logos for dozens of large and small companies, individuals, and organizations including SanMar, Columbia University, Henry Paulson, and Seattle Premier Events. 
+* Created graphics for promotional materials, t-shirts and apparel, packaging, and logos for dozens of large and small companies, individuals, and organizations including SanMar, Columbia University, Henry Paulson, and Seattle Premier Events. Some examples include [this concept for a character](http://nebula.wsimg.com/0cddde35e84d66b61bef7fd39f66d88e?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1) for a Stuffed Castle Studios game, and the logo projected in [this image](http://nebula.wsimg.com/9939a41b375c4381be609f1662373884?AccessKeyId=37FD32A831813860134C&disposition=0&alloworigin=1) from a SanMar event.  
 
 Medical and Scientific Illustration - New York, NY 2012-2013  
 * Illustrated and coauthored Neurological journal articles for Columbia University Medical Center
