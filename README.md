@@ -17,6 +17,18 @@ Seeking a career that optimally utilizes my creativity, passion for visual repre
 * Able to multi-task and prioritize efficiently. 
 * Excellent communication skills and ability to comprehend and bring to fruition another individual's creative vision.
 
+#### Education
+
+**University of Southern California**  
+
+B.A, Fine Arts, 2011, _cum laude_
+* Awarded Roski School of Fine Arts Merit Scholarship in the years 2008, 2009, and 2010. 
+
+**University of Washington**  
+
+Scientific Illustration Cerification, 2007
+* Acquired skills for creating extremely accurate illustrations and educational materials. 
+
 #### Professional Experience: 
 
 ##### Digital Artist at London CREA and Affiliated Companies. 
@@ -32,16 +44,24 @@ Book Illustration - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
 * [Children's Book Example](https://www.amazon.com/Hudsons-Tales-Adventures-Brother-Hudson/dp/0692204040). 
 * [Fiction Example](https://www.amazon.com/dp/B018GEKCE0/ref=rdr_kindle_ext_tmb). 
 
-Medical and Scientific Illustration - New York, NY 2012-2013  
-* Illustrated and coauthored Neurological journal articles for Columbia University Medical Center
-* Designed graphics and logos for various departments of New York Presbyterian Hospital/Columbia University Medical Center
-
 Graphic Design - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
 * Created graphics for promotional materials, t-shirts and apparel, packaging, and logos for dozens of large and small companies, individuals, and organizations including SanMar, Columbia University, Henry Paulson, and Seattle Premier Events. 
 
+Medical and Scientific Illustration - New York, NY 2012-2013  
+* Illustrated and coauthored Neurological journal articles for Columbia University Medical Center
+* Designed graphics and logos for various departments of New York Presbyterian Hospital/Columbia University Medical Center.
+
 #### Volunteer Activities
 
-Art Donations
-* Donated paintings and prints of paintings centering in theme around Seattle Sports to auctions for various non-profit foundations. For example, I donated [this](http://nebula.wsimg.com/507a0f66abb9084a50d3ca5cd27ce192?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1) to the Friends of FSH Research Annual Auction. 
+Art Donations, 2014-Present
+* Donated paintings and prints of paintings centering in theme around Seattle Sports to auctions for various non-profit foundations. For example, [this](http://nebula.wsimg.com/507a0f66abb9084a50d3ca5cd27ce192?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1) was donated to the Friends of FSH Research Annual Auction. 
+
+Delta Society, Volunteer and Youth Program Founder, 2002-2008
+* Delta Society Certified Pet Partner for animal-assisted therapy. This involved visiting hospitals and senior centers weekly with my little dog, so that patients and residents could engage with him. 
+* Founded the first Youth Pet Partners group in the nation in 2006, encouraging youth involvement in animal-assisted therapy. 
+
+#### Interests
+
+Seattle Sports, Art, Cooking and Baking, Jewish Studies, LGBTQ History, and national politics. 
 
 
