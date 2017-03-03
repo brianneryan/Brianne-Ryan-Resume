@@ -31,7 +31,7 @@ Scientific Illustration Cerification, 2007
 
 ### Professional Experience: 
 
-##### Digital Artist at London CREA and Affiliated Companies. 
+##### Digital Artist at London CREA and Affiliated Companies 
 2015-Present
 
 * Responsible for a wide range of creative tasks including photography, development of logos and illustrations, and generation of promotional materials. 
