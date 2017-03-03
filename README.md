@@ -39,17 +39,21 @@ Seattle, WA 2015-Present
 
 ##### Freelance Illustration
 
-Book Illustration - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
-* Illustrated a wide array of genres of books, from childrens books to fantasy novels to non-fiction. Some examples include 
+Illustration - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
+* Illustrated a wide array of genres of books, from childrens books to fantasy novels to non-fiction. 
+* Illustrated and coauthored Neurological journal articles for Columbia University Medical Center
+* Designed graphics and logos for various departments of New York Presbyterian Hospital/Columbia University Medical Center.
+* Some examples of illustrated works include 
 [_Hudson's Tales_](https://www.amazon.com/Hudsons-Tales-Adventures-Brother-Hudson/dp/0692204040), [_The Nuts I Know and the Party They Throw_](https://www.amazon.com/Nuts-Know-Party-They-Throw-ebook/dp/B01I66LB7A), and  
 [_Risen Gods_](https://www.amazon.com/dp/B018GEKCE0/ref=rdr_kindle_ext_tmb). 
 
 Graphic Design - New York, NY, Los Angeles, CA, Seattle, WA 2010-Present
 * Created graphics for promotional materials, t-shirts and apparel, packaging, and logos for dozens of large and small companies, individuals, and organizations including SanMar, Columbia University, Henry Paulson, and Seattle Premier Events. Some examples include [this concept for a character](http://nebula.wsimg.com/0cddde35e84d66b61bef7fd39f66d88e?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1) for a Stuffed Castle Studios game, and the logo projected in [this image](http://nebula.wsimg.com/9939a41b375c4381be609f1662373884?AccessKeyId=37FD32A831813860134C&disposition=0&alloworigin=1) from a SanMar event.  
 
-Medical and Scientific Illustration - New York, NY 2012-2013  
-* Illustrated and coauthored Neurological journal articles for Columbia University Medical Center
-* Designed graphics and logos for various departments of New York Presbyterian Hospital/Columbia University Medical Center.
+Fine Art - New York, NY, Los Angeles, CA, Seattle, WA 2011-Present
+* Created commissioned original works of fine art through traditional and digital media. 
+* Examples of my work can be seen on my [website.](www.brianneryan.com) Or! For a quicker summary of my fine art process, see this [self-portrait](http://nebula.wsimg.com/7e1627f6d358e92847843087b5053abd?AccessKeyId=F097E11996A8D1978335&disposition=0&alloworigin=1).
+
 
 ### Volunteer Activities:
 
