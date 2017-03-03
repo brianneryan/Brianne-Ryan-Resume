@@ -35,7 +35,7 @@ Scientific Illustration Cerification, 2007
 Seattle, WA 2015-Present
 
 * Responsible for a wide range of creative tasks including photography, development of logos and illustrations, and generation of promotional materials. 
-* Worked in this full-time role for a group of companies that span multiple industries, while responsible for all manner of creative projects. 
+* Currently working in this full-time role for a group of companies that span multiple industries, while responsible for all manner of creative projects. 
 
 ##### Freelance Illustration
 
